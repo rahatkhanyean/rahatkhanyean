@@ -1,1 +1,1 @@
-I was born to struggle. I am destined to win. 
+I am interested in Machine Learning and Web Development.
