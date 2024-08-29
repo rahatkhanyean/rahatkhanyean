@@ -1,1 +1,1 @@
-I am interested in Machine Learning and Web Development.
+Passionate about Machine Learning and Web Development. I enjoy building innovative solutions and exploring the latest technologies in these fields. Always eager to learn and apply new skills to create impactful projects.
